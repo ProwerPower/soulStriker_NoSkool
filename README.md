@@ -1,0 +1,1 @@
+# soulStriker_NoSkool
